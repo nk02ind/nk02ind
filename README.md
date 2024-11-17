@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nk02ind
+- 👀 I’m interested in technology and how it change everything
+- 🌱 I’m currently learning to make life easier
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me - email me in nk....02@gmail.com
+- 😄 Pronouns: speed thrills but kills
+- ⚡ Fun fact: everything happens for a reason but reason is unknown
